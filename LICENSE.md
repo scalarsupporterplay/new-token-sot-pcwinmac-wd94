@@ -1,4 +1,4 @@
-# 
+# Profissional new token sniper bot modelos para Mac OS | Exclusivo new token sniper bot modelos para PC Windows. Com suporte multi-chain e indexação de blockchain — otimizado para máximo desempeño en cada plataforma.
 
 
 
